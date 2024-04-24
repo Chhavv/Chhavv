@@ -2,7 +2,7 @@
 - 👀 I’m interested in nudge the coding side of me
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on project management
-- 📫 How to reach me chhaviparsada@gmail.com
+- 📫 How to reach me chhaviparsad@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: 
 
